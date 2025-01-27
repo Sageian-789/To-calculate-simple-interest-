@@ -1,1 +1,0 @@
-# To-calculate-simple-interest-
